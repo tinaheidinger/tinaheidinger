@@ -8,7 +8,7 @@ Hi there! I'm Tina, a technology professional based in Austria. I currently work
 
 Outside of tech, I run a [side business](https://pferdestaerken.at/) consulting horse owners on equine nutrition and creating [educational content](https://pferdewissen.at/). When I'm not working, you'll often find me outdoors, horseback riding or hiking in the mountains with my dog.
 
-Additionally, I'm a trained paramedic with over a decade of experience in preclinical emergency care. I also have a wonderful rescue dog who turned out to by the loveliest companion. We're currently training for her to become a certified therapy dog so she can spread her love and connection to those who need it most.
+Additionally, I'm a trained paramedic with over a decade of experience in preclinical emergency care. I also have a wonderful rescue dog who truly has a heart full of love. We're currently training for her to become a certified therapy dog so she can spread her kindness and connection to those who need it most.
 
 Thanks for stopping by - I'd love to connect!
 
